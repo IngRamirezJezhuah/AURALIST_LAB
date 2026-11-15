@@ -1,1 +1,0 @@
-# AURALIST_LAB
